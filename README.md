@@ -1,2 +1,3 @@
-# sparx
-sparx dupe made by @w3vm
+# project sparx
+contact @w3vm on discord for inq
+# website NOT UPLOADED YET
